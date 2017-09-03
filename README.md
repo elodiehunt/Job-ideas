@@ -2,7 +2,7 @@
 
 I am a 12 year old girl looking for a job in mother's helping. I would be hapy to help wth chores around the house, or keep an eye on and entertain children under the age of nine. 
 
-I have three younger brothers, and I am a peer medator at school, so I know how to deal with arguments and calm down upset children. I can help with or do dishes, cooking, laundry, yard work or just general cleaning. I also have experience with kids that have sensory difficulties.
+I have three younger brothers, and I am a peer mediator at school, so I know how to deal with arguments and calm down upset children. I can help with or do dishes, cooking, laundry, yard work or just general cleaning. I also have experience with kids that have sensory difficulties.
 
 ### Available times
 Tuesday: 4:00 pm - 5:30 pm ---
